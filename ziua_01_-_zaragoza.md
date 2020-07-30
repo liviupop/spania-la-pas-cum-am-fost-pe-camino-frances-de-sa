@@ -1,10 +1,10 @@
 
-# Ziua 1 - Zaragoza
+# Ziua 1 - Cluj-Napoca -» Zaragoza
 
 ---
 
 
-Am pornit cu emoții și nehotărât, dar lucrurile au inceput sa se puna la locul lor. Primul semn bun a fost in aeroportul din Cluj, mi’era teama sa nu patesc si eu ca Lala, cand i’au tuns rucsacul ca ii atarnau legaturile. Daca nu stiati, in aeroportul din Cluj ai optiunea sa’ti infoliezi bagajul pentru 22 de lei. Exact cati lei mai aveam.
+Am pornit cu emoții și nehotărât, dar lucrurile au inceput sa se puna la locul lor. Primul semn bun a fost in aeroportul din Cluj, mi-era teama sa nu pățesc si eu ca Lala, cand i-au tuns rucsacul fiind că îi atârnau legăturile. În aeroportul din Cluj ai opțiunea să-ți înfoliezi bagajul pentru 22 de lei. Exact câți mai aveam.
 
 Zborul cu Wizz a fost foarte ok ca de obicei. Pilotii stiu sa aterizeze foarte lin. Au fost mici clatinaturi, asa zisele turbulente, dar stiu eu ca iar isi faceau de cap maimuticile secrete pe care le duc in cabina pilotii si le lasa sa se joace cand se plictisesc.
 
